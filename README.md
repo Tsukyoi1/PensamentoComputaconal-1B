@@ -1,2 +1,3 @@
-# PensamentoComputaconal-1B
-repositório criado para compartilhar trabalhos da disciplina de pensamento computaciona
+# Enzo Felipe dos Santos Lopes N:55 Turma:1B
+
+## 
