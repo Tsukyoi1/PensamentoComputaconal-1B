@@ -25,3 +25,4 @@ _Onde canta o Sabiá._
 ![image](https://user-images.githubusercontent.com/107427833/182228045-a9ca0cc2-51c7-47e2-878d-e0e1579f9f7a.png)
 @LiziBugalski
 https://www.escrevendoofuturo.org.br/caderno_virtual/texto/cancao-do-exilio/index.html
+https://www.amazon.com.br/Can%C3%A7%C3%A3o-do-Exilio-Gon%C3%A7alves-Dias/dp/8579130611
