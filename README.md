@@ -1,4 +1,4 @@
-# Enzo Felipe dos Santos Lopes N:55 Turma:1B/Kaylaine Cristina Soares de Lima N:47 Turma:1B
+# Enzo Felipe dos Santos Lopes N:55 Turma:1B
 
 ## Canção do Exílio (Gonçalves Dias)
 
